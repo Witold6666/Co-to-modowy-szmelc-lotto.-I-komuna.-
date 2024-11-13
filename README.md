@@ -1,0 +1,1 @@
+# Co-to-modowy-szmelc-lotto.-I-komuna.-
